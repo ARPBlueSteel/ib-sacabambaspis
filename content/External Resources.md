@@ -1,3 +1,0 @@
-Academic Related:
-
-Helpful Tools:
